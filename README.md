@@ -1,1 +1,0 @@
-AI*ROBOT SCRATCH : 2025.8.14. 등록
